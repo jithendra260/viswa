@@ -1,2 +1,2 @@
 i am from andhra pradesh 
-i am from konaseena # viswa 
+i am from eastgodavari# viswa 
